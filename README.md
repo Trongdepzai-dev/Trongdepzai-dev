@@ -1,4 +1,4 @@
-# Chào mừng đến với trang của @Trongdepzai-dev! 👋🚀
+# Chào mừng đến với trang github của @Trongdepzai-dev! 👋🚀
 
 Xin chào! Tôi là **@Trongdepzai-dev** ✨.
 
